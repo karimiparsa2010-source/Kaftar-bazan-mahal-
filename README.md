@@ -1,2 +1,2 @@
-# Kaftar-bazan-mahal-
+# Kaftar-bazan-mahal
 We are kaftar baz.
